@@ -1,4 +1,4 @@
-# 
+# Experience attack on titan revolution like never before with attack on titan revolution exclusive Scripts, the #1 Script. Includes god mode and
 
 
 
